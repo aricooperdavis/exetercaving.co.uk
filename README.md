@@ -1,5 +1,4 @@
-# University of Exeter Caving Club (UoESS)
-> Probably the best Caving Club in the world...
+_Probably the best Caving Club in the world..._
 
 ---
 
