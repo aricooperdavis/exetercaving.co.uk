@@ -15,8 +15,8 @@ So come along and meet us, and I hope we can show you why we love what we do ðŸ™
 
 ## Find out more
 
-* Facebook (page): https://www.facebook.com/exetercaving/
-* Facebook (group): https://www.facebook.com/groups/exetercaving/
+* Facebook (page): [https://www.facebook.com/exetercaving/](https://www.facebook.com/exetercaving/)
+* Facebook (group): [https://www.facebook.com/groups/exetercaving/](https://www.facebook.com/groups/exetercaving/)
 
 ---
 
